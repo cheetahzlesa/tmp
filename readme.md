@@ -14,5 +14,5 @@ Nas tim tvoria clenovia:
 
 1.
 2.
-3.
+3.Miriam Grznárová
 4. Gabriel Kozuch
